@@ -1,0 +1,2 @@
+# Gabut
+Bumi itu bulat
